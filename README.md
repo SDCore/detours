@@ -1,3 +1,3 @@
 # detours
 
-detour deez nuts
+detour some <b>bitches<b>
