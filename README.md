@@ -1,3 +1,3 @@
 # detours
 
-detour your dad
+detour deez nuts
